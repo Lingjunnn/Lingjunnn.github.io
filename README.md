@@ -1,0 +1,1 @@
+# Hoshino42.github.io
